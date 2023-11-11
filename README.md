@@ -2,4 +2,3 @@
 - 👀 I’m interested in flying airplanes, writing code, and learning new things
 - 📫 reach me at geraldeburkholder@gmail.com
 - :airplane: Private Pilot
-- 🧭 6.5nm from VUZ on the 120° radial
